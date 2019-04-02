@@ -115,5 +115,5 @@
 ![1979年夏天大家送我回上海读大学, 前排右二.jpg](http://upload-images.jianshu.io/upload_images/32598-a28c6ee56279b444.jpg)
 
 ![在庐山.jpg](http://upload-images.jianshu.io/upload_images/32598-ffaa07e3ce37180a.jpg)
-     
+
 在以后的许多年里，我经历了出国，升职，移民，生子,置业等等人生的喜事，**却再也没有一件可以和这件事相提并论了。这是我人生当中最重大的一个转折点！**
