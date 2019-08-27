@@ -13,7 +13,7 @@
 ![露珠.jpg](https://github.com/cnfeat/ArthurWong.mesule.com/blob/master/docs/chapter01/img/01/1.1.jpg)
 
 
-![大海.jpg](http://upload-images.jianshu.io/upload_images/32598-aa30a2a7cfe5e305.jpg)
+![大海.jpg](https://github.com/cnfeat/ArthurWong.mesule.com/blob/master/docs/chapter01/img/01/1.2.jpg)
 
  1955年一个初夏的中午, 我出生于上海市邮电医院（静安区长乐路），当时我的父母亲都在电话局工作。族谱“忠和延世泽,礼仪振家声”中，我是“世”字辈，而当时中国大陆正如火如荼开展“伟大”的运动，所以爸爸给我起了“世伟”这个名字。
 
@@ -40,10 +40,10 @@
 那个年代整个中国社会处于明显的饥荒和灾难之中，父母对我们的要求特别严，父辈对我们孩子，尤其是男孩子的体罚也是很严厉的，我在小学的时候，如果考试“开红灯”要用木尺打手心。有一些在今天看来几乎有点过于苛刻了。我们从小到大父母是不会给我们一分钱的零用钱的，因为他们觉得小孩子不应该养成乱花钱的坏习惯。我和姐姐在星期天到大姨家去帮她做一点家务，因为大姨的脚有点残疾，走路不太方便。她常常会给我们一毛或者五分作为一个星期的零用。。。这可是一个星期中最开心的一天。。。  
 
  
-![1964年全家摄于上海中山公园（1）.jpg](http://upload-images.jianshu.io/upload_images/32598-220b2d87762ac923.jpg)
+![1964年全家摄于上海中山公园（1）.jpg](https://github.com/cnfeat/ArthurWong.mesule.com/blob/master/docs/chapter01/img/01/1.3.jpg)
 
 
-![1964年全家摄于上海中山公园（2）.jpg](http://upload-images.jianshu.io/upload_images/32598-43c269ac7989205b.jpg)
+![1964年全家摄于上海中山公园（2）.jpg](https://github.com/cnfeat/ArthurWong.mesule.com/blob/master/docs/chapter01/img/01/1.4.jpg)
 
 1966年当我读小学四年级时，一场政治风暴--“文化大革命”席卷中国大地。一时间学校停课，各地的红卫兵串联。。。开始了“打砸抢”“抄家”等骇人听闻的“革命行动”。。。全国一下子陷入一片瘫痪中。
 
