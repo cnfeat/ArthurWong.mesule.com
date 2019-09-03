@@ -15,7 +15,6 @@
 - [（1）林林与儿子](chapter02/note01.md)
 - [（2）小雅与事业](chapter02/note02.md)
 - [（3）生意与采访](chapter02/note03.md)
-- [（4）转折和新生](chapter02/note04.md)
 
 
 ## Changelog
